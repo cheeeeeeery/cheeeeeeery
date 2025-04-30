@@ -1,5 +1,5 @@
 - Hi, I’m @cheeeeeeery, 
-- I'm an interdisciplinary artist, designer, a messy coder, and a translater.
+- I'm an interdisciplinary artist, designer, messy coder, translator and a machine fixer.
 - You can find my works on my website: https://naisyuanye.com/
 - I’m looking to collaborate on anything! Or just make friends:D
 
